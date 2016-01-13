@@ -1,3 +1,5 @@
+## The Centurion Award
+
 For nearly 100 years, the Order of the Arrow has purposefully recognized Scouts and Scouters who best exemplify the Scout Oath and Law in their daily lives. Therefore, our organization’s centennial provides a unique opportunity to commemorate those among us who are exemplars of the “high ideals and purpose of the Order of the Arrow.”
 
 The Centurion Award aimed to highlight “Hometown Heroes,” or Arrowmen who have meaningfully contributed to the forming, maturing and ongoing operational excellence of their local lodge, and who, in doing so, inspired others to follow in their footsteps.

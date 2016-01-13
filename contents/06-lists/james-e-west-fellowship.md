@@ -12,12 +12,12 @@ Those who are recognized by the James E. West Fellowship Award will cast their o
 
 Coosa Lodge presents these Fellowships to Arrowmen who have spent countless hours further the ideals of the Order of the Arrow.  The award is given as often as is deemed appropriate.
 
-* James Tarbox, 2006
-*	Travis Tarbox, 2007
-*	Stephen Hayes, 2008
-*	Will Jackson, 2010
-*	Will Cole, 2011
-*	Devan Beitel, 2012
-*	Luke Lockwood, 2014
-* Murphree, 2014
-*	Thomas Willingham, 2015
+* 2006 - James Tarbox
+*	2007 - Travis Tarbox
+*	2008 - Stephen Hayes
+*	2010 - Will Jackson
+*	2011 - Will Cole
+*	2012 - Devan Beitel
+* 2014 - Luke Lockwood, Jacob Murphree
+*	2015 - Thomas Willingham
+*	2016 - TBA

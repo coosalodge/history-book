@@ -25,3 +25,9 @@ James was inducted into Coosa Lodge in 2001 at Camp Sequoyah. He then served in 
 Keith is a Vigil Honor member and has the District Award of Merit from Direct Service Council and Gamenowinink Lodge. Keith has served as the Southern Region Staff Adviser since 2006. According to his DSA nomination form, Keith “really loves scouting and especially the Order of the Arrow…it is apparent that the OA is his ‘first love.'”  Keith served as the Coosa Staff Adviser from 2003 to 2006.
 
 ### 2015 - Mr. Richard Gregory ("Greg") Moore
+
+Greg was a Vigil Honor recipient and Lodge Chief of Atta Kulla Kulla Lodge as a youth before joining Cherokee Fifty many years later. Greg was prominent during the consolidation process, emerging as our first Nominations and Recognition committee adviser and one of our first Associate Lodge Advisers. After Dr. James Flatt stepped down as Lodge Adviser, Greg was chosen to succeed him.
+
+After four years of service as Lodge Adviser, Greg resigned that post and was asked to serve as an Associate Section Adviser for Section SR-9. During his time as Associate Section Adviser, Greg found new opportunities to serve Scouting across SR-9 and the Southern Region.
+
+Greg served as the Deputy Lead Adviser for the Day of Service Messengers of Peace program at the 2013 National Jamboree. He has also served on several staffs for national events such as NOAC, SummitCorps, and multiple NLATS Courses.

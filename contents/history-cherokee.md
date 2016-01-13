@@ -1,4 +1,4 @@
-## Cherokee Lodge 
+## Cherokee Lodge #50
 
 Cherokee Lodge #50 (aka "Cherokee Fifty") of the Birmingham Area Council and later the Central Alabama Council was formally chartered on June 17, 1930. Cherokee Fifty was the first lodge chartered in Alabama and the first south of the Mason-Dixon Line. It had the largest membership in the state while occupying only two counties – Jefferson and Shelby. It had a rich history which includes many Arrowmen who branched out to other Councils to help form new lodges there.
 

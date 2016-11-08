@@ -4,7 +4,7 @@ Introduced at the 1981 National Order of the Arrow Conference, the Founder’s A
 
 The Award is a bronze medallion bearing the likenesses of E. Urner Goodman and cofounder Carroll A. Edson, with wooden base and brass plate suitable for engraving. Also available is a special Founder’s Award arrow ribbon, with a gold colored arrow suspended from a red ribbon.
 
-### Cherkokee Lodge Recipients
+### Cherokee Lodge Recipients
 
 * ???? - Benji Thomas, Alan Camp, Zack Cross, Lon Moore
 * 1995 - Paul Colbert, Mr. Julian Simmons

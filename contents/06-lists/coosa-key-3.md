@@ -20,10 +20,11 @@ Year | Lodge Chief | Lodge Adviser | Staff Adviser
 2013 | Patrick Yim | Mr. Ed O'Neal | Mr. Joey Kiker
 2014 | John Mayhall | Mr. Ed O’Neal | Mr. Joey Kiker
 2015 | Will Tidwell | Mr. Ed O’Neal | Mr. Joey Kiker
-2016 | Alex East | Mr. Jim Colson | Mr. Joey Kiker
+2016 | Alex East | Mr. Jim Colson | Mr. Daniel Giles
+2017 | Will Hamm | Mr. Jim Colson | Mr. Daniel Giles
 
 Notes:
 
 * James Tarbox was elected Section Chief at the 2007 SR-6S Conclave. At that time, the Vice-Chief of Service, Travis Tarbox, assumed the role of Lodge Chief.
 
-* Gregory Keith left for the United States Military Academy at the end of the summer. At that time, the Vice-Chief of Service, Ryan Sweeney, assumed the role of Lodge Chief.
+* Gregory Keith left for the United States Military Academy at the end of the summer. At that time, the Vice-Chief of Service Ryan Sweeney assumed the role of Lodge Chief.

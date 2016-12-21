@@ -864,4 +864,11 @@ Date | Recipient | Vigil Name | Translation
 11/6/2015 | Mr. Ken Dunn | Wingolauchsik Nutiket Shinkekink | Cheerful Guardian Of The Forest
 11/6/2015 | Mr. Bud Moncrief | Sapeleantpe Ehamet Wehwatewet | Bald Headed Fisherman Teacher
 11/6/2015 | Mr. Greg Sweatmon | Tipas Kimtunhe | Chicken Whisperer
-
+11/4/2016 | Logan Dolloff | Alukakan Ntalemahe Pakenchu | Servant Who Throws The Disc
+11/4/2016 | Ryan Hall | Welankunsu Nuwingi Nutiket | Friendly Willing Guard
+11/4/2016 | Zachary Johnson | Sakima Gischileu | Chief Who Has Proven True
+11/4/2016 | Adler Salem | Amoe Nulhalukw Alukakan Manitto | Beekeeper Who Serves The Lord
+11/4/2016 | Mr. Jim Charlton | Alukakan Mexelkik | Servant Of A Multitude
+11/4/2016 | Mr. Justin Conn | Chitanixen Nimat Kekeleksu | Steadfast Brother Who Laughs
+11/4/2016 | Mr. Ron Moore | Wulilissowagan Nenustao Nikanixink | Compassionate Patient Leader
+11/4/2016 | Mrs. Cindy Perry | Wingolauchsik Machque Witscheman | Cheerful Bear Who is Helpful

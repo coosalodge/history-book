@@ -117,6 +117,7 @@
 ## 1954
 * Cherokee hosts the Area 5-A Conference at Camp Indian Valley.
 * Paul Bannon (Cherokee) is elected as the Area 5-A Chief.
+* Paul Bannon (Cherokee) is elected as the National Vice Chief.
 
 ## 1955
 * Kaskanampo Lodge hosts the Area 5-B Conference at Camp Westmoreland.
@@ -159,10 +160,12 @@
 
 ## 1966
 * Achunanchi hosts the Area 5-E Conference at Comer Scout Reservation.
+* Gary Tomlinson (Cherokee) is elected as the Area 5-E Vice Chief.
 
 ## 1967
 * Cherokee hosts the Area 5-E Conference at Camp Indian Valley.
 * Gary Tomlinson (Cherokee) is elected as the Area 5-E Chief.
+* Gary Tomlinson (Cherokee) is elected as the National Vice Chief.
 * Kaskanampo receives the National Award of Excellence for Region 5 as part of the 1967 Onward Arrow Plan.
 
 ## 1968
@@ -225,9 +228,10 @@
 * Drew Baird (Cherokee) is elected as the SE-3 Section Vice Chief.
 
 ## 1985
+* Dan Baird (Cherokee) is elected as the SE-3 Section Vice Chief.
 
 ## 1986
-* Frank Couch (Cherokee) is elected as the SE-3 Section Chief.
+* Frank Couch (Cherokee) is elected as the SE-3 Section Vice Chief.
 
 ## 1987
 * Frank Couch (Cherokee) is re-elected as the SE-3 Section Chief.
@@ -241,6 +245,7 @@
 * Achunanchi hosts the SE-3 Conclave at Comer Scout Reservation.
 
 ## 1990
+* Mike Sutton (Kaskanampo) is elected as teh SE-3 Section Chief.
 
 ## 1991
 
@@ -249,6 +254,7 @@
 
 ## 1993
 * Following the 1993 National Realignment, Cherokee, Achunanchi, and Kaskanampo all moved to Section SR-8.
+* Alan Cam is elected to serve as the SR-8 Section Vice Chief.
 
 ## 1994
 
@@ -324,6 +330,7 @@
 ## 2014
 
 ## 2015
+* The Order of the Arrow celebrates its centennial anniverary with 15,000+ in attendance for the National Order of the Arrow Conference at Michigan State University.
 * Greg Moore receives the Distinguished Service Award.
 
 ## 2016

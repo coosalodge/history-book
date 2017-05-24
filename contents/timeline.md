@@ -245,7 +245,7 @@
 * Achunanchi hosts the SE-3 Conclave at Comer Scout Reservation.
 
 ## 1990
-* Mike Sutton (Kaskanampo) is elected as teh SE-3 Section Chief.
+* Mike Sutton (Kaskanampo) is elected as the SE-3 Section Chief.
 
 ## 1991
 
@@ -254,7 +254,7 @@
 
 ## 1993
 * Following the 1993 National Realignment, Cherokee, Achunanchi, and Kaskanampo all moved to Section SR-8.
-* Alan Cam is elected to serve as the SR-8 Section Vice Chief.
+* Alan Camp (Cherokee) is elected as the SR-8 Section Vice Chief.
 
 ## 1994
 
@@ -336,4 +336,3 @@
 ## 2016
 
 ## 2017
-

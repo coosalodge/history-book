@@ -50,7 +50,7 @@
 ## 1929
 
 ## 1930 
-* June 17 - Cherokee Lodge #50 is founded. They become the first lodge chartered south of the Mason Dixon Line.
+* June 17 - Cherokee Lodge #50 is founded. They become the first lodge chartered in the Deep South.
 
 ## 1931
 * Cherokee performs its first induction at Camp Andrews.
@@ -239,7 +239,6 @@
 
 ## 1989
 * Achunanchi hosts the SE-3 Conclave at Comer Scout Reservation.
-
 
 ## 1990
 

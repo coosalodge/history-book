@@ -27,8 +27,8 @@
 
 ## 1917
 * Dec - Goodman is promoted to Scout Executive of the Philadelphia Council.
-* Goodman joins the United States Army.
 * Edson receives the Vigil Honor.
+* Edson joins the United States Army.
 
 ## 1918
 * ?? - Goodman is drafted into the US Army during World War I.

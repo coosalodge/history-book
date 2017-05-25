@@ -287,6 +287,7 @@ Jul - The first National Scout Jamboree is held in Washington, DC.
 
 ## 1995
 * Kaskanampo Lodge celebrates its 50th anniversary.
+* The Order of the Arrow Trail Crew program begins at Philmont Scout Ranch.
 
 ## 1996
 * Kaskanampo Lodge hosts the 1998 SR-8 Conclave at Camp Jackson.
@@ -325,6 +326,7 @@ Jul - The first National Scout Jamboree is held in Washington, DC.
 * Jim Ellison is elected as SR-6S Section Chief.
 
 ## 2005
+* The Order of the Arrow Ocean Adventure program begins at the Florida National High Adventure Sea Base.
 
 ## 2006
 
@@ -342,6 +344,7 @@ Jul - The first National Scout Jamboree is held in Washington, DC.
 * Coosa hosts the inaugural SR-9 Section Conclave at Comer Scout Reservation.
 * James Tarbox is elected as SR-6S Section Chief, then serves SR-9 as co-chief.
 * Dr. James Flatt receives the Distinguished Service Award.
+* The Canadian Odyssey Order of the Arrow High Adventure Program begins, based at the Northern Tier National High Adventure Base.
 
 ## 2010
 
@@ -355,8 +358,10 @@ Jul - The first National Scout Jamboree is held in Washington, DC.
 
 ## 2013
 * Nathan Moore is elected as SR-9 Section Chief.
+* Jul 15 - The Summit Bechtel Family National Scouting Reserve opens, hosting the 2013 National Scout Jamboree.
 
 ## 2014
+* The Order of the Arrow Summit Experience programing begins at The Summit Bechtel Family National Scouting Reserve.
 
 ## 2015
 * The Order of the Arrow celebrates its centennial anniverary with 15,000+ in attendance for the National Order of the Arrow Conference at Michigan State University.

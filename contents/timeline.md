@@ -52,8 +52,8 @@
 ## 1926
 
 ## 1927
-* Goodman is promoted to the larger Chicago Area Council as Scout Executive.
-* Edson was hired to be the Scout Executive for Hudson Council in Jersey City, NJ.
+* Goodman is promoted to the Chicago Area Council as Scout Executive.
+* Edson is hired to be the Scout Executive for Hudson Council in Jersey City, NJ.
 
 ## 1928
 
@@ -81,7 +81,7 @@
 * Edson attends Command and General Staff School at Fort Leavenworth.
 
 ## 1937
-Jul - The first National Scout Jamboree is held in Washington, DC.
+* Jun 30 - The first National Scout Jamboree beings in Washington, DC.
 
 ## 1938
 * Sept 29 - Achunanchi Lodge #135 receives its first charter.

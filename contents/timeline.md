@@ -14,24 +14,32 @@
 
 ## 1914
 * Troop 1 returns to camp at Treasure Island.
+* Edson graduates from Dartmouth College, where he was a member of Phi Beta Kappa.
 
 ## 1915
 * April – Goodman and Edson are hired by the Philadelphia Area Council as field commissioners.
 * Goodman is selected as Camp Director at Treasure Island.
 * Edson is selected as Assistant Camp Director in charge of commissary.
 * July 15 – The first Order of the Arrow induction is held at Treasure Island.
+* Goodman is the first to receive the Vigil Honor.
 
 ## 1916
 
 ## 1917
+* Dec - Goodman is promoted to Scout Executive of the Philadelphia Council.
+* Goodman joins the United States Army.
+* Edson receives the Vigil Honor.
 
 ## 1918
+* ?? - Goodman is drafted into the US Army during World War I.
+* Dec - Goodman is discharged from the Army and resumes his profession career as Scout Executive in Philadelphia
 
 ## 1919
 
 ## 1920
 
 ## 1921
+* Edson is hired by the Chicago Area Council as a Field Executive for the South Shore District.
 
 ## 1922
 
@@ -44,6 +52,8 @@
 ## 1926
 
 ## 1927
+* Goodman is promoted to the larger Chicago Area Council as Scout Executive.
+* Edson was hired to be the Scout Executive for Hudson Council in Jersey City, NJ.
 
 ## 1928
 
@@ -53,6 +63,9 @@
 * June 17 - Cherokee Lodge #50 is founded. They become the first lodge chartered in the Deep South.
 
 ## 1931
+* Apr - Goodman is promoted by Chief Scout Executive James E. West to become national program director of the BSA.
+* Edson receives a master's degree from Columbia University.
+* Edson attends Infantry School at Fort Benning
 * Cherokee performs its first induction at Camp Andrews.
 
 ## 1932
@@ -65,16 +78,22 @@
 ## 1935
 
 ## 1936
+* Edson attends Command and General Staff School at Fort Leavenworth.
 
 ## 1937
+Jul - The first National Scout Jamboree is held in Washington, DC.
 
 ## 1938
 * Sept 29 - Achunanchi Lodge #135 receives its first charter.
+* Edson is promoted to the rank of colonel.
+* Waite Phillips donated 35,857 acres of land in northeast New Mexico to the Boy Scouts of America, which becomes Philturn Rockymountain Scoutcamp. This land would eventually become known as Philmont Scout Ranch.
 
 ## 1939
 * Sept 23 - Members of Cherokee Lodge perform the first induction ceremonies for Watonala Lodge #169 and Alibamu Lodge #179 at Camp Andrews during the first Area G Conference.
 
 ## 1940
+* Goodman and Edson both receive the Distinguished Service Award as the Order of the Arrow celebrates its 25th anniversary.
+* Edson is reacalled to active duty as an instructor at the Command and General Staff School in 1940
 * Visiting members of Cherokee Lodge #50 conduct the first induction for Achunanchi Lodge at Camp Zinn.
 * Cherokee Lodge sends three representatives to the 1940 Grand Lodge Meeting at Camp Twin Echo. The contingent is led by their Scout Executive and Supreme Chief of the Fire, George Simcox.
 
@@ -94,6 +113,7 @@
 * Cherokee adopts its lodge totem, a thunderbird with the head of an Ivory Billed Woodpecker.
 
 ## 1947
+* Goodman is made an honorary chief of the Blackfoot Tribe of American Indians and given the name "Chief Eagle".
 
 ## 1948
 * The first National Order of the Arrow Conference is held at Indiana University.
@@ -107,6 +127,7 @@
 * The National Order of the Arrow Conference is held at Indiana University, where the Order of the Arrow celebrated its 35th anniversary.
 
 ## 1951
+* Sept 16 - Goodman retires as national program director, ending his professional Scouting career. Upon his retirement, Goodman is awarded an honorary Doctorate in Humanics from Missouri Valley College.
 
 ## 1952
 * Cherokee Lodge inducts its first Vigil Honor recipient, Zach "Chief" Cross, at Camp Dexter Hobbs during the 1952 Area 5-A Conference. Three other Arrowmen would keep the Vigil that night, as well.
@@ -157,6 +178,7 @@
 * June 5 – Comer Scout Reservation opens near Mentone, Ala.
 * Harry Merrill (Cherokee) is elected as the Area 5-E Vice Chief.
 * Morgan Weed receives the Distinguished Service Award as a member of Kaskanampo Lodge.
+* Goodman writes 'The Building of a Life'.
 
 ## 1966
 * Achunanchi hosts the Area 5-E Conference at Comer Scout Reservation.
@@ -182,6 +204,7 @@
 * Kaskanampo is awarded the E. Urner Goodman Award for Camping, becoming the first lodge in Region V to receive the award.
 
 ## 1971
+* Achunanchi receives the E. Urner Goodman Award for Camping.
 
 ## 1972
 
@@ -207,9 +230,12 @@
 * Tim Hall (Kaskanampo) is elected as the SE-4A Section Chief.
 
 ## 1980
+* Mar 13 - Dr. Goodman dies from pneumonia. He was 88 years old.
+* Mar 29 - Dr. Goodman is buried at Penney Farms, Florida.
 * Danny Smith (Cherokee) is elected as the SE-4A Section Chief.
 
 ## 1981
+* The Founder's Award is introduced at the National Order of the Arrow Conference.
 * Cherokee hosts the SE-4A Conclave at Camp Sequoyah.
 * Ken Rees (Achunanchi) is elected as the SE-4A Section Vice Chief.
 * James E. Johnson receives the Distinguished Service Award as a member of Cherokee Lodge.
@@ -231,6 +257,7 @@
 * Dan Baird (Cherokee) is elected as the SE-3 Section Vice Chief.
 
 ## 1986
+* Oct 15 - Edson dies in Syracuse, NY.
 * Frank Couch (Cherokee) is elected as the SE-3 Section Vice Chief.
 
 ## 1987
@@ -291,6 +318,7 @@
 
 ## 2003
 * Jim Ellison is elected as SR-6S Section Vice Chief.
+* Coosa receives the National Service Award.
 
 ## 2004
 * Coosa hosts the SR-6S Conclave at Comer Scout Reservation.
@@ -303,6 +331,7 @@
 ## 2007
 * James Tarbox is elected as SR-6S Section Chief.
 * Will Jackson is elected as SR-6S Section Secretary.
+* Coosa receives the E. Urner Goodman Camping Award.
 
 ## 2008
 * James Tarbox is re-elected as SR-6S Section Chief, then serves as SR-9 co-chief with Jordan Hammons (Aracoma).

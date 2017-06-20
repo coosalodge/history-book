@@ -364,9 +364,12 @@
 * The Order of the Arrow Summit Experience programing begins at The Summit Bechtel Family National Scouting Reserve.
 
 ## 2015
+* Coosa attends the SR-9 Conclave at Camp Sidney Dew.
 * The Order of the Arrow celebrates its centennial anniverary with 15,000+ in attendance for the National Order of the Arrow Conference at Michigan State University.
 * Greg Moore receives the Distinguished Service Award.
 
 ## 2016
+* Coosa attends the SR-9 Conclave at Camp Rainey Mountain.
 
 ## 2017
+* Coosa attends the inaugural SR-9 Heartland Gathering (Conclave) at Camp Frank G. Lumpkin.

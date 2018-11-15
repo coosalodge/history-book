@@ -18,6 +18,7 @@ The Award is a bronze medallion bearing the likenesses of E. Urner Goodman and c
 * 1993 - Charles Canady, Ray Morris, Jr.
 * 1995 - Matthew Smith, Chester Wright
 * 1996 - Mr. Moran Colburn
+* 1997 - Mr. Mike Thigpen
 * 1998 - J. Howard Cochran, Adam Howard
 * 1999 - Seth Hill, Mr. Joe Garrett
 

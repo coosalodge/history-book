@@ -57,3 +57,5 @@ The Award is a bronze medallion bearing the likenesses of E. Urner Goodman and c
 * 2014 - Patrick Yim, Mr. Vince Lambert, Mr. Harry Merrill
 * 2015 - Nathan Moore, Mr. Ed O'Neal, Mrs. Marty Jones
 * 2016 - John Mayhall, Mr. Tom McInnis, Mr. David Murphree
+* 2017 – Noah Reed, Mr. Mickey Bobo
+* 2018 – Colin Giles, Dr. Dan Belk

@@ -1,3 +1,7 @@
+---
+title: Coosa Lodge Timeline
+---
+
 ## 1891
 * May 15 – E. Urner Goodman is born in Philadelphia, Pennsylvania.
 * December 29 – Carroll A. Edson is born in Worchester, Massachusetts.

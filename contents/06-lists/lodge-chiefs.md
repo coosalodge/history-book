@@ -67,7 +67,7 @@
 | 1994 | Paul Colbert, Brady Pitts |  | Jim Krell |  |
 | 1995 | Lamar Mayton |  | Robby Thomas |  |
 | 1996 | Jeremy Jackson |  | Robby Thomas |  |
-| 1997 | Jeremy Jackson |  | Dan Watson |  |
+| 1997 | Jeremy Jackson | Adam Howard | Dan Watson |  |
 | 1998 | Charlie Thomas |  | Bryan Tull |  |
 | 1999 | David Self, Chris Thomas | Seth Hill | Ben Killen |  |
 | 2000 |  |  |  | David Self |

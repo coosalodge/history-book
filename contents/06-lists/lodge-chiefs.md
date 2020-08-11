@@ -68,7 +68,7 @@
 | 1995 | Lamar Mayton |  | Robby Thomas |  |
 | 1996 | Jeremy Jackson |  | Robby Thomas |  |
 | 1997 | Jeremy Jackson | Adam Howard | Dan Watson |  |
-| 1998 | Charlie Thomas | Seth Hill | Bryan Tull |  |
+| 1998 | Charlie Thomas |  | Bryan Tull |  |
 | 1999 | David Self, Chris Thomas | Seth Hill | Ben Killen |  |
 | 2000 |  |  |  | David Self |
 | 2001 |  |  |  | Massey Griffin |

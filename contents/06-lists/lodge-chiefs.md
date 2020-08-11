@@ -88,6 +88,6 @@
 | 2015 |  |  |  | Will Tidwell |
 | 2016 |  |  |  | Alex East |
 | 2017 |  |  |  | Will Hamm |
-| 2018 |  |  |  |  |
-| 2019 |  |  |  |  |
-| 2020 |  |  |  |  |
+| 2018 |  |  |  | Cade Hamm |
+| 2019 |  |  |  | Andrew Huffman |
+| 2020 |  |  |  | Gabriel Travis |

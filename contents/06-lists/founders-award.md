@@ -59,3 +59,5 @@ The Award is a bronze medallion bearing the likenesses of E. Urner Goodman and c
 * 2016 - John Mayhall, Mr. Tom McInnis, Mr. David Murphree
 * 2017 – Noah Reed, Mr. Mickey Bobo
 * 2018 – Colin Giles, Dr. Dan Belk
+* 2019 – Nicholas Crenshaw, Mr. J.T. Dabbs, III
+* 2020 – John Henry Glenn, Mr. Chris Arnold

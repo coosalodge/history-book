@@ -54,7 +54,7 @@
 | 1981 | Allen Bordon |  | William Foxx |  |
 | 1982 | Allen Bordon |  | Jeff Gothard |  |
 | 1983 | Richard Sturgeon |  | Jeff Gothard |  |
-| 1984 | Richard Sturgeon |  | Jeff Gothard |  |
+| 1984 | Richard Sturgeon | Eric Ross | Jeff Gothard |  |
 | 1985 | John Defreese |  | Chris Humphries |  |
 | 1986 | Todd Jenkins |  | Brennan Smith |  |
 | 1987 | Todd Jenkins |  | Brennan Smith |  |

@@ -1,3 +1,6 @@
+---
+title: Kaskanampo Lodge \#310 - Lodge History
+---
 ## Kaskanampo Lodge #310
 
 Kaskanampo Lodge 310 was chartered by the Order of the Arrow, the B.S.A.’s National Brotherhood of Honor Campers, on July 11, 1945. It served the seven county Tennessee Valley Council out of Huntsville, Alabama. It was a Charter member of Area V-B that was affiliated with mostly Tennessee Lodges. The lodge was named after a tribe of Koasati Indians native to the area. Kaskanampo translated means “Men Warriors”. The lodge chose the Mussel Shell as their totem due to the abundance of the freshwater mussels in the Tennessee Valley and their importance to the Native Americans of the area.

@@ -320,7 +320,6 @@ Date | Recipient | Vigil Name | Translation
 9/25/1982 | Stan Fischer |  | Mountain Brother
 9/25/1982 | Glenn Hughes |  | Mountain Wolf
 9/25/1982 | Cromwell Josey |  | Great Dancer
-9/25/1982 | Glenn Mizell |  | Night Hawk
  |||
 9/24/1983 | John S. Bowlin, II |  | One Who Sings
 9/24/1983 | Moss Logan |  | Big Eater
@@ -347,7 +346,6 @@ Date | Recipient | Vigil Name | Translation
 9/19/1986 | Wilbur Cowart | Wenitschanti | Patient Warrior
 9/19/1986 | Michael Gray |  | Friendly Camper
 9/19/1986 | Daniel Mcneal | Weuchsowagan | One Who Has Knowledge
-9/19/1986 | Patrick Morton |  | Helper
  |||
 9/21/1987 | Eric Bobo | Pischk | Night Hawk
 9/21/1987 | Kenny Burns |  | Tall Lean One
